@@ -2,4 +2,29 @@
 Repositório criado para postar os trabalhos desenvolvidos na disciplina de Pensamento Computacional
 ##### Carlos Henrique Pereira Domingos N:6
 ##### Pablo de Medeiros Trombela N:27
-##### Pipoca
+### Pipoca
+Sou delicada e branquinhA
+
+Salgada ou até docinha
+
+Tenho cheiro agradável
+
+E sabor admirável
+
+Por toda parte estou:
+
+Parques, cinemas e zoo,
+
+Até macaco ou crianças
+
+Colocam-me em suas panças
+
+Sou também bom alimento
+
+Pois dou muita energia
+
+Se queres saber meu nome
+
+Digo com muita alegria:PIPOCA
+
+https://www.facebook.com/pages/category/Writer/Poema-do-mundo-inteiro-770628623038895/
