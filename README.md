@@ -27,4 +27,10 @@ Se queres saber meu nome
 
 Digo com muita alegria:PIPOCA
 
+
 https://www.facebook.com/pages/category/Writer/Poema-do-mundo-inteiro-770628623038895/
+
+
+![image](https://user-images.githubusercontent.com/106178741/182214162-b5941dcd-78ef-4568-badd-8253b751141d.png)
+
+@liziBugalski
